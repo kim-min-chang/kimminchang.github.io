@@ -1,1 +1,0 @@
-# kimminchang.github.io
